@@ -1,2 +1,2 @@
 # First-Kourtney-Ashley
-Ashley Vanaman
+Ashley Vanaman.
